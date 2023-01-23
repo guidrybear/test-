@@ -2,4 +2,4 @@
 
 # hello everyone this is our new projecccttt
 
-# Noah's been working on the home page added some text
+# Noah's sike its been Adia!!  working on the home page added some text
